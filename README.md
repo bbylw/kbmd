@@ -1,105 +1,37 @@
-移民政策失败源于缺乏融合，而且这很可能全是蓄意设计的
+OPINION: RUBIO TELLS EUROPE THE TRUTH, BRUSSELS MELTS DOWN LIKE COWARDS
 
-这里有一个没人愿意大声说出来的令人不安的部分：
+Secretary of State Marco Rubio just said out loud what European elites spend billions trying to suppress: mass migration is erasing the shared Western values that justify NATO's existence. And Brussels' response? Crying "interference" while fining X for allowing free speech.
 
-澳大利亚政府知情。他们调查过。但他们还是给了他枪。结果15人丧生。
+Let's cut through the bullshit.
 
-一条你不应该去串联的时间线：
+Rubio's warning is mathematically correct. NATO exists because member states share history, culture, ideology, and principles - not just a defense agreement. Erase those foundations and you've got a glorified protection racket with no moral justification. Europe's importing millions from civilizations with fundamentally incompatible values, refusing to enforce assimilation, then acting shocked when synagogues need armed guards and Christmas markets need concrete barriers.
 
-1998年： Naveed Akram的父亲持学生签证抵达悉尼。
+German Chancellor Friedrich Merz called America's National Security Strategy "unacceptable." EU Commission President Ursula von der Leyen demanded the U.S. "stay out of European affairs." These are the same people who lecture Americans about democracy while fining social media platforms hundreds of millions of euros for refusing to censor speech Brussels doesn't like.
 
-2019年： Naveed因与ISIS（伊斯兰国）小组有关联而遭到调查。当局知情。他在他们的监控名单上。
+The geographic split exposes everything. Eastern Europe - Poland, Hungary, Czech Republic - openly agrees with Rubio. They've seen civilizational collapse before. They know what happens when elites prioritize ideology over survival. Western European leaders know Rubio's right too, but only admit it privately because saying it publicly means career suicide in Brussels.
 
-2015–2025年： 父亲获得了六把枪支的执照。尽管儿子因涉恐受到调查，父亲却成为了射击俱乐部成员长达十年。
+Rubio cited the Bondi Beach Hanukkah massacre - 15 dead from an Islamist attack in Australia - as proof mass migration has global consequences. He's correct. When you import hundreds of thousands from regions where Jews are considered legitimate targets, eventually someone acts on that programming. Australia's discovering what Europe learned the hard way: you can't absorb millions from seventh-century honor cultures into 21st-century secular democracies and expect the fabric to hold.
 
-2025年12月14日： 父子俩利用这些合法持牌的枪支在邦迪海滩（Bondi Beach）的光明节（Hanukkah）庆祝活动中谋杀了15人。其中包括一名叫Matilda的10岁女孩。也包括Rabbi Eli Schlanger，他是五个孩子的父亲，最小的孩子两个月前才出生。
+The sovereignty argument demolishes EU counterattacks. Every nation has the right to control its borders, decide who enters, and set assimilation standards. This isn't controversial - it's the literal definition of statehood. Brussels' entire project depends on eroding that sovereignty, replacing it with unelected bureaucrats in Belgium making decisions for 450 million people who never voted for them.
 
-澳大利亚官员假装没看见的模式：
+Von der Leyen demanding America "stay out" while simultaneously demanding American troops defend Europe is peak European elite entitlement. You don't get to outsource your defense to U.S. taxpayers, import millions who hate Western civilization, censor anyone who complains, then tell Americans to shut up about it. Rubio's making explicit what Trump's been signaling: if Europe wants to commit suicide, fine - but don't expect Americans to pay for the funeral.
 
-2025年8月： 澳大利亚驱逐伊朗大使，指控其指挥针对犹太目标的袭击。情报局长Mike Burgess表示，他们发现了“涉嫌犯罪与伊朗伊斯兰革命卫队指挥官之间的联系”。
+The censorship angle reveals who's actually afraid of democracy. EU fines on X aren't about "misinformation" - they're about controlling narratives. When German citizens can't discuss migration policy without risking prosecution, when French parents get investigated for complaining about schools, when British subjects get arrested for social media posts, you're not defending democracy - you're building the surveillance state.
 
-2024年12月： 墨尔本犹太教堂遭到燃烧弹袭击。
+Eastern Europe gets it because they've been occupied. They know what authoritarianism looks like in practice, not just theory. When Hungary's Viktor Orban or Poland's conservatives warn about civilizational threats, Western elites call them "fascists." When those same threats materialize - Swedish grenade attacks, French no-go zones, German New Year's Eve mass assaults - suddenly it's "complex" and "we couldn't have known."
 
-2024年10月： 悉尼咖啡馆纵火袭击。
+You knew. You just didn't care because admitting you knew meant admitting the deplorables were right.
 
-2024年11月： Woollahra发生涂鸦与纵火，10多辆汽车受损。
+Here's what happens next: Trump administration continues pressuring Europe to choose between NATO's civilizational foundations and Brussels' multicultural fantasy. Eastern European states increasingly align with Washington over Brussels. Western European governments face growing domestic pressure as citizens watch their cities transform. Either Europe's elites wake up, or nationalist movements replace them.
 
-2023年10月7日后数天： 悉尼歌剧院抗议活动出现哈马斯/真主党旗帜。
+Italy's already testing this model under Giorgia Meloni. Austria just elected the Freedom Party. Netherlands chose Geert Wilders. France's National Rally gained record support. Germany's AfD polling second nationally. These aren't fringe movements - they're populations rejecting elite-imposed demographic transformation.
 
-2025年7月： 澳大利亚反犹太主义特使发布应对袭击升级的建议。未被执行。
+Rubio's warning isn't interference. It's an ultimatum: shared values or just a defense pact. Because if NATO is only about American troops protecting European territory while Europe imports people who despise everything NATO supposedly defends, why exactly are American sons and daughters stationed in Germany?
 
-2025年12月： 犹太宗教庆典发生大规模枪击案。
+Brussels can't answer that question honestly without admitting their entire project - borderless, post-national, demographically transformed Europe - is incompatible with the alliance they demand America fund. So instead they shriek about "unacceptable" American opinions while fining platforms for allowing Europeans to express similar views.
 
-没人愿意承认的是：这一连串事件的每一步本来都是可以避免的。
+The civilization Rubio's defending built the modern world. Individual liberty, rule of law, free speech, religious tolerance, scientific method, representative government - these aren't just "Western values," they're the values that created functioning societies while most of humanity lived under tyranny. Europe's elites are gambling they can maintain these fruits while destroying the roots.
 
-父亲在27年前持学生签证抵达。他的儿子在2019年因ISIS小组关联被调查。
+They're wrong. And when the experiment fails - when the last synagogue closes, when women's rights retreat, when speech becomes thoughtcrime, when Paris looks like Karachi - don't expect Americans to fix it. We tried warning you. You called us fascists.
 
-而在那次调查之后的几年里，这位父亲获得了6张枪支执照。
-
-6张执照……在他的儿子因ISIS受到调查之后。
-
-袭击中使用的枪支？全部是父亲合法持有的。
-
-澳大利亚官员现在正专注于枪支管制。新南威尔士州警察局长Malcolm Lanyon正在谈论国家枪支登记册，谈论限制个人拥枪数量。
-
-完全搞错了重点。 那些枪支早就登记在案了。这家伙有执照。系统的运作完全符合设计——它只是把枪发给了恐怖嫌疑人的父亲，并称之为“合法”。
-
-那个令人不安的问题：
-
-你怎么能在引进数百万人的同时，未能强制实施文化融合，无视情报警告，给恐怖嫌疑人的家属发放枪支执照，不执行自己的反犹特别工作组建议，然后在他们于犹太宗教庆典上杀害15人时表现得一脸震惊？
-
-反对党领袖Sussan Ley：“有一种显而易见的愤怒，因为反犹主义被任由其发酵。这是未能保护澳大利亚犹太人安全的明显失败。”
-
-反犹主义特使Jillian Segal：“这已经在社会中渗透多年。犹太社区感到恐惧。有些人甚至不想离开家门。”
-
-内塔尼亚胡对澳大利亚说：“你们没有采取任何措施遏制在你们国家内部生长的癌细胞。” 这话很难听。但回头看看那条时间线，告诉我他哪里说错了。
-
-更宏大的模式：
-
-这不仅仅是澳大利亚的问题。墨尔本、巴黎、伦敦、斯德哥尔摩、德国。同样的剧本：
-
-引进人口却不要求融合，因为强制执行标准会被视为“种族主义”而无视警告信号，惩罚指出问题的公民，然后在暴力爆发时假装措手不及。
-
-澳大利亚容忍了18个月“糟糕但合法”（awful but lawful）的抗议活动，反犹信息在起诉门槛之下肆意传播。
-
-专家警告该国在言论自由问题上“跨过了卢比孔河”（越过了界限），需要重新定义仇恨言论和出于政治动机的暴力。
-
-警告被无视。建议未执行。枪支执照照发不误。
-
-然后，邦迪海滩惨案发生了。
-
-Ahmed al Ahmed——一位穆斯林水果店老板——扑倒了枪手，在手臂和手部中弹的情况下夺下了武器。他在一次手术后正在康复中，还需要进行2-3次手术。他的家人称他为“百分之百的英雄”。因为他确实是。
-
-阻止这场大屠杀的英雄与杀手有着相同的信仰背景。这证明了这无关广泛的宗教人口统计——而关乎具体的选择：你让谁进来，你执行什么标准，你听取哪些警告。
-
-澳大利亚选择让学生签证在没有审查的情况下转为永久居留权。选择给ISIS调查对象的父亲发放枪支执照。选择不执行反犹太主义特别工作组的建议。选择允许“糟糕但合法”的仇恨言论持续18个月。
-
-15个人为这些选择付出了生命的代价。
-
-你不应该注意到的“设计”： 这种模式在每一个西方国家重复上演。引进人口。
-
-跳过融合要求。无视文化冲突。
-
-将批评打压为偏见。眼看着平行社会形成。当暴力爆发时表现出震惊。归咎于“精神疾病”或“独狼”。然后循环往复。
-
-以色列情报部门怀疑这是伊朗真主党910部队所为——复杂且计划周密。如果得到证实，这意味着一个外国国家支持的恐怖小组在澳大利亚领土上活动，在当地招募人员，获得合法枪支，并在澳大利亚安全部门自2019年就盯着其儿子的情况下实施了一场大屠杀。
-
-总理阿尔巴尼斯（Albanese）的回应：关注枪支管制。而不是关注父亲如何获得这些执照。不是关注为什么儿子的ISIS调查没有标记这个家庭。不是关注为什么反犹建议被束之高阁。不是关注移民审查的失败。
-
-只谈枪支。就好像问题出在武器上，而不是握着武器的手上。
-
-令人不安的真相： 你不能在没有同化标准的情况下引进数百万人，给恐怖嫌疑人的家人发放枪支执照，无视你自己的安全顾问，允许仇恨言论在标志性地标处持续18个月，然后在人死之后责怪枪支。
-
-Matilda只有10岁。Rabbi Schlanger最小的孩子才2个月大，永远见不到父亲了。
-
-还有13人离去了。
-
-Ahmed al Ahmed在阻止了本可能导致30多人死亡的惨案后，正从枪伤中恢复。
-
-这是可以预防的。每一步都是可以预防的。
-
-从1998年的签证，到2019年无疾而终的调查，到后来发放的枪支执照，再到2025年7月未被执行的建议。
-
-澳大利亚知情。但澳大利亚还是发放了执照。
-
-这就是令人不安的真相。其余的都只是噪音。
+Sovereign nations have the right to commit suicide. They don't have the right to demand others pay for it.
